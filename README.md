@@ -1,1 +1,0 @@
-bielak jebać ci ojca
